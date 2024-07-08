@@ -15,7 +15,7 @@ Otherwise, please you send your work to <tianyuf@fastmail.fm> or <tichai@fastmai
 ## Contacts
 
 - Tianyu Fang <tianyuf@fastmail.fm>
-- Linghein Ho <tichai@fastmail.fm>
+- Christopher He <tichai@fastmail.fm>
 
 ## Watch Online
 
